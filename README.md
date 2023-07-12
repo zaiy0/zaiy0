@@ -1,9 +1,6 @@
 ### Hi there 👋
 
-_Someone who is learning_ ✨
-
-enthusiast knowledge
-
+Someone who is learning ✨
 
 "HELLO WORLD"
 
